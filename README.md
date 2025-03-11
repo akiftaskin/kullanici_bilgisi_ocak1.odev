@@ -1,0 +1,1 @@
+# kullanici_bilgisi_ocak1.odev
